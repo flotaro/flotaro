@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @flotaro
+- 👋 Hi, I’m @krishhhh
 - 👀 I’m interested in Cybersecurity and AI
 - 🌱 I’m currently learning Cybersecurity and have good knowledge of Machine learning and deep learning
 - 📫 How to reach me:- linked in - https://www.linkedin.com/in/krishna-tripathi-101840255/ 
